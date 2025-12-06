@@ -1,10 +1,10 @@
 <img width="942" height="143" alt="tumblr_c95607d472f84a1bac785ffe96a493ac_62b93326_1280" src="https://github.com/user-attachments/assets/2574ad26-eae8-4dd3-a122-d028bd9eb4ee" />
 
-" I became myself capable of bestowing animation upon lifeless matter . "
+>> (https://reanimation.straw.page/)
 
 <img width="100" height="100" alt="IMG-3746" src="https://github.com/user-attachments/assets/7a23d345-cba5-428a-9a64-e6a9fbd07f04" />
 
-: Vienna / Victor \ Chance . Any & All pronouns , She | they pref !!
+} Check strawpage for more info !
 
 <img width="100" height="100" alt="w1xulh" src="https://github.com/user-attachments/assets/9fdf9701-0508-4119-a013-1e5e2aa9df17" />
 
@@ -19,8 +19,7 @@ Dni ; . Creeps , Pedos (supporters too) , Ws / Dream Supporters , Melanie Martin
 
 <img width="1563" height="200" alt="tumblr_22637812c7082547a7e85b76708fb5d1_9c6fd768_2048" src="https://github.com/user-attachments/assets/153d5cfd-0392-4f30-8adb-bfec45ef2590" />
 
-Feel free to int if you like anything stated above!!! 
-If I ever get defensive about a character I relate to, I never intend to!! It's most likely due to the fact I find a lot of comfort in that character! ^u^
+" I became myself capable of bestowing animation upon lifeless matter . "
 
 <img width="100" height="100" alt="tumblr_a682b71ffe26b0655a6ab2a664529450_30f7cee7_1280" src="https://github.com/user-attachments/assets/b4ea0ad0-0873-4dc0-adf6-c578d745542d" />
 
